@@ -15,3 +15,7 @@ I mean if the fan speed doesn't correlate with the controller controlling it, it
 There's wayyy too many of these, possibly still in existence?? but here's YouTube
 
 https://www.youtube.com/watch?v=6UTQevHf1Bs
+
+This was ENTIRELY a lie, eg see "Twitch employees following me around" "psychosis" what about YouTube employees etc. 2017 - 2020 happened prior to this; 2023 - 2024 happened after, and 2025 is amazingly hilarious.
+
+![image](https://github.com/user-attachments/assets/d1bd0753-3f86-4f42-8245-d9b6d4fd5909)
