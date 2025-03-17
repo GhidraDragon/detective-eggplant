@@ -19,3 +19,10 @@ https://www.youtube.com/watch?v=6UTQevHf1Bs
 This was ENTIRELY a lie, eg see "Twitch employees following me around" "psychosis" what about YouTube employees etc. 2017 - 2020 happened prior to this; 2023 - 2024 happened after, and 2025 is amazingly hilarious. Insanity Is Doing the Same Thing Over and Over Again and Expecting Different Results
 
 ![image](https://github.com/user-attachments/assets/d1bd0753-3f86-4f42-8245-d9b6d4fd5909)
+
+
+GhidraDragon Ghidra龙 I will take President Trump's request for aid from Russia, China, etc
+
+Ok grab some evidence mr pegasus
+
+https://www.youtube.com/watch?v=enZ_UXXUV7w
