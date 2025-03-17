@@ -8,4 +8,6 @@ First of all, if 2017 Tufts through now was "caused by amphetamine" they wouldn'
 
 I mean if the fan speed doesn't correlate with the controller controlling it, it's probably got Stuxnet installed
 
+There's wayyy too many of these, possibly still in existence?? but here's YouTube
+
 https://www.youtube.com/watch?v=6UTQevHf1Bs
