@@ -26,3 +26,5 @@ GhidraDragon Ghidra龙 I will take President Trump's request for aid from Russia
 Ok grab some evidence mr pegasus
 
 https://www.youtube.com/watch?v=enZ_UXXUV7w
+
+Oh so allegations of me being hacked in 2020 charge was true.
